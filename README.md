@@ -1,0 +1,2 @@
+# Khamzat_ai
+eccccccccccccccccccccccc
